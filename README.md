@@ -1,0 +1,1 @@
+# anydesk-crack-pre-activated
